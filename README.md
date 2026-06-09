@@ -1,4 +1,4 @@
-# Hi, I'm Ayushi Gupta
+Ayushi Gupta
 MBA Finance Graduate
 
 ## About Me
